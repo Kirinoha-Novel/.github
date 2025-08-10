@@ -8,4 +8,4 @@
 
 - Twitter(現: X)アカウント
 
-未作成
+https://x.com/kirinohanovel
