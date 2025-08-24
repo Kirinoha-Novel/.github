@@ -14,7 +14,7 @@
 
 https://x.com/kirinohanovel
 
-## 作品
+## サークル制作作品
 
 ### なついろにっき。
 
