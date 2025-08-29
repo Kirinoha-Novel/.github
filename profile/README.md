@@ -4,11 +4,11 @@
 
 ## ウェブサイト
 
-未作成
+https://kirinohanovel.com/
 
 ##  ブログ
 
-未完成
+https://blog.kirinohanovel.com/
 
 ## Twitter(現: X)アカウント
 
@@ -18,7 +18,7 @@ https://x.com/kirinohanovel
 
 ### なついろにっき。
 
-製作中
+https://natsuiro.kirinohanovel.com/
 
 ## サークル設立記念イラスト
 
