@@ -12,7 +12,7 @@ https://blog.kirinohanovel.com/
 
 ## Twitter(現: X)アカウント
 
-https://x.com/kirinohanovel
+https://x.com/kirinohanovel/
 
 ## サークル制作作品
 
