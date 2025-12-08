@@ -17,7 +17,7 @@
 
 以下が「きりのはのべる」のコミックつくば特設サイトになります。ぜひご覧ください。
 
-https://kirinohanovel.com/comitsuku2025
+https://kirinohanovel.com/ct1
 
 ## ウェブサイト
 
